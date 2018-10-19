@@ -4,7 +4,7 @@ Ala ma kota
     Czlowiek w cybeprzestrzeni tu byl
    
   Cale te? No o co chodzi cale te? Czy jest ziemia plaska?
-    Patryk Osko
+    Patryk Osko.
   
 Tak.
 Adrianna Milewska
